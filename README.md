@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Rudra-93
+- 👀 I’m interested in Business Analytics / Data Science / Generative AI and technologies that would enhance my skill in making decisions for my company.
+- 🌱 I’m currently learning Excel, SQL, POWER BI & Python
+- 💞️ I’m looking to collaborate on projects with more business insights 
+- 📫 You can recah me @8800475075 or rudralohar11@hotmail.com or https://www.linkedin.com/in/rajesh-karmakar-74471076/
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am new to this IT world and want to start from Basics. Me being a sales professional I need a lot of support for my projects.
